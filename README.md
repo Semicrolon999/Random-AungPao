@@ -1,6 +1,7 @@
-How To Use Random AungPao\n
--------------------------\n
-=> 1. Send PhoneNumber in Config.json\n
-=> 2. cmd => node index.js\n
-=> 3. Snipe Your mom Pussy .\n
---------------------------
+How To Use Random AungPao
+1. Send PhoneNumber in Config.json
+2. 
+3. cmd => node index.js
+4. 
+5. Snipe Your mom Pussy 
+6. 
