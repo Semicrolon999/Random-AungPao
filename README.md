@@ -4,3 +4,4 @@ How To Use Random AungPao
 3. Snipe Your mom Pussy
 Prohibit Sell Or Edit Credit
 Edit Credit Mom You Dead
+ DECODE SHOP : https://discord.gg/8bdt888gGj
